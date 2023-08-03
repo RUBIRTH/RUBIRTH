@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RUBIRTH
-- 👀 I’m interested in to watch movies
+- 👀 I’m interested in watching movies
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me using discord https://discord.gg/FMaGNkbq4D
